@@ -1,1 +1,1 @@
-# sushikawaii.githup.io
+# sushikawaii.github.io

@@ -1,1 +1,1 @@
-# SUSHIKAWAII.githup.io
+# sushikawaii.githup.io
